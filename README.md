@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning js(fucking javascript)
 - 💞️ I’m looking to collaborate on make money
 - 📫 How to reach me => get sleep and try to see dream..  - i will be right there for you
-- im just jooking
+- I'm just kidding
 rezapasand7878@gmail.com
 thats my email!
 If you feel you need a quiet and energetic colleague, just email me
