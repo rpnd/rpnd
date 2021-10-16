@@ -1,6 +1,6 @@
 - 👋 Hi, I’m reza
 - 👀 I’m interested in anything about front end dev
-- 🌱 I’m currently learning js(fucking javascript)
+- 🌱 I’m currently learning js
 - 💞️ I’m looking to collaborate on make money
 - 📫 How to reach me => get sleep and try to see dream..  - i will be right there for you
 - I'm just kidding
